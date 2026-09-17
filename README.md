@@ -1,4 +1,4 @@
-# 👋 Hi there, I'm Mahinul Haque!
+# 👋 Hi there, I'm Mahinul Hoque Mahi!
 
 🎓 **About to Graduate with a Bachelors in Computer Science**  
 Currently in my final semester and ready to swap my student ID for an employee badge (or maybe just more coffee ☕).
